@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @zenit5u
+- 👀 I’m interested in Technology
+- 🌱 I’m currently learning coding
+- 📫 How to reach me, no not for now
